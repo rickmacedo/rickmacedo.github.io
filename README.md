@@ -1,1 +1,0 @@
-# rickmacedo.github.io
